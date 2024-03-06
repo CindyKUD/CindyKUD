@@ -11,8 +11,6 @@
 
 - 💬 Ask me about **the brainstorming that I have to solve a problem**
 
-- 📫 How to reach me **cindykelly@hotmail.es**
-
 - ⚡ Fun fact **learn several languages for my character projects, the joke tells itself**
 
 <h3 align="left">Connect with me:</h3>
